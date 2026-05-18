@@ -1,4 +1,4 @@
-#  
+#  Actualizado escape tsunami for brainrots script es el mejor escape tsunami for brainrots script con anti-prohibición y velocidad. Seguro, confiable y optimizado para el máximo
 
 
 
